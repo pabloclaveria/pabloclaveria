@@ -1,6 +1,6 @@
 ## Pablo Claveria
 
-Estudiante [UPNA](http://www.unavarra.es/portada)
+Ingeniero Agrónomo por la [UPNA](http://www.unavarra.es/portada)
 ### Hi there 👋
 
 <!--
