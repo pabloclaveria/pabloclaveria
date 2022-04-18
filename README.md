@@ -1,6 +1,6 @@
 ## Pablo Claveria
 
-Ingeniero Agrónomo por la [UPNA](http://www.unavarra.es/portada)
+Ingeniero Agrónomo. [_Universidad Pública de Navarra_](http://www.unavarra.es/portada) 
 
 
 <!--
